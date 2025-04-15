@@ -51,5 +51,5 @@ You can download them directly from IMDb at the link above.
 
 Saad Dahbani  
 Student at Marist University  
-[LinkedIn](www.linkedin.com/in/saaddahbani)
+[LinkedIn](www.linkedin.com/in/saadeddinedahbani)
 
